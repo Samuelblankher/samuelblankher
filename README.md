@@ -10,6 +10,6 @@ Meu nome é Marcelo Paludetto
 
 samuel.blanca.hernandez@escola.pr.gov.br
 
-![](![image](https://github.com/Samuelblankher/samuelblankher/assets/173482645/d59e7a10-ea0a-45fd-b297-ca8e49d6febc)
+![image](https://github.com/Samuelblankher/samuelblankher/assets/173482645/d59e7a10-ea0a-45fd-b297-ca8e49d6febc)
 
 
