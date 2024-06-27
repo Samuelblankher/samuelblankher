@@ -10,5 +10,6 @@ Meu nome é Marcelo Paludetto
 
 samuel.blanca.hernandez@escola.pr.gov.br
 
-![](https://tenor.com/pt-BR/view/goku-ultra-instinct-acey-gif-14659632855809077657)
+![](![image](https://github.com/Samuelblankher/samuelblankher/assets/173482645/d59e7a10-ea0a-45fd-b297-ca8e49d6febc)
+
 
